@@ -1,1 +1,1 @@
- https://tharunanand04.github.io
+https://tharun-anand.github.io/tharunanand04.github.io/
